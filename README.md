@@ -1,0 +1,2 @@
+# KONDRO-Jean-Michel
+Portfolio 
